@@ -1,0 +1,1 @@
+Akbar-Zain_191011401834_06TPLE025_Kecerdasan-Buatan_UAS
